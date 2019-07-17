@@ -4,7 +4,7 @@
 
 Prof. Errin T. Stegich
 
-- Kishlansky, Mark. *Civilization in the West.* New York:  Cengage, 2013.
+- Kishlansky, Mark. *Civilization in the West.* New York:  Penguin, 2013.
 
 - Primary source readings:  *Available on Canvas*
 
