@@ -30,3 +30,5 @@ Each of these types of assignments will address the ideas, people, and events.  
 Each of these weekly assignments will be worth a possible total of **15 points**.
 
 **There is a zero-tolerance policy for plagiarism in this course.** 
+
+Students are expected to login to the course at least once per week during the semester; successul completion of all assignments will be counted for the **Participation Grade** for the course.
